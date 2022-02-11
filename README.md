@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ev4ns96 or Alexander 19 years
+- 👋 Hi, I’m or Alexander 19 years
 - 👀 I’am interested in programming, games.
 - 🌱 I’am currently studying at a technical school
 - 📫 How to reach me Discord - .evans#0101
