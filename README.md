@@ -1,4 +1,4 @@
-- 👋 Hi, I’m or Alexander 19 years
+- 👋 Hi, I’m or Alexander 20 years
 - 👀 I’am interested in programming, games.
 - 🌱 I’am currently studying at a technical school
 - 📫 How to reach me Discord - Evans#0270
